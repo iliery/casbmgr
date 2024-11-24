@@ -1,5 +1,3 @@
-# casbmgr
-Casibom Güvenilir Giriş Adresi.7/24 Destek Casibom
 # Casibom Güvenilir Giriş Adresi.7/24 Destek Casibom
 **Casibom: Dijital Eğlencenin Yükselen Yıldızı**
 
